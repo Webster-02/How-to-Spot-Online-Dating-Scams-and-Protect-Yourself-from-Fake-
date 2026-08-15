@@ -68,6 +68,7 @@ Some possible **red flags in social media** include:
 None of these signs alone proves that an account is fake. However, several warning signs together deserve closer attention.
 
 ## Use a Reverse Social Media Search
+<img width="512" height="231" alt="Image" src="https://github.com/user-attachments/assets/b5c0cf7c-8628-45c0-bec6-1bf26ba4d4d5" />
 
 If you are unsure about someone's identity, a **reverse social media search** can provide another way to examine publicly available information.
 

@@ -1,4 +1,5 @@
 # How to Spot Online Dating Scams and Protect Yourself from Fake Profiles
+<img width="511" height="504" alt="Image" src="https://github.com/user-attachments/assets/1b084804-b683-4900-9959-1bf296e69ff2" />
 
 Online dating has made it easier to meet new people, start conversations, and build meaningful connections with someone who may live miles away. Dating apps and social media can create exciting opportunities, but they also come with risks. Fake profiles, dishonest identities, and **online dating scams** can make it difficult to know whether someone is genuinely interested or trying to manipulate you.
 
